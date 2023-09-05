@@ -1,1 +1,1 @@
-discover weeklies
+discover weeklies of account firatcansucu
